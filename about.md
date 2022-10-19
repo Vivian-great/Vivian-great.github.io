@@ -15,7 +15,7 @@ I am known for my strong moral and ethical principles, distinct interpersonal re
 
 My relevenat experience is much needed in the Corporate Communications and Media world, but more importantly is an expertise in technology and the digital field, so i could render acquired skills and experiences effectively, in line with changing global digititalisation , as well as explore inherent talents and creativity,hence the need to be a part of the Tech Epert Academy. 
 
-I have Authored two books: ‘My Life in High Heels’ and ‘How to enjoy your job again’- Year 2020
+I have authored two books: ‘My Life in High Heels’ and ‘How to enjoy your job again’- Year 2020
 .
 A part of a Key-User group that effectively migrated/transmitted to a new Business Enterprise Software Application – SAP, at Lafarge Africa Plc. - Year 2018.
 
