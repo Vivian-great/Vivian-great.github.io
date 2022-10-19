@@ -19,6 +19,6 @@ I have Authored two books: ‘My Life in High Heels’ and ‘How to enjoy your 
 .
 A part of a Key-User group that effectively migrated/transmitted to a new Business Enterprise Software Application – SAP, at Lafarge Africa Plc. - Year 2018.
 
-I am an adent lover of good and artistic food, a skilled music and movie critic who loves to travel and explore other cultures. 
+I am an ardent lover of good and artistic food, a skilled music and movie critic who loves to travel and explore other cultures. 
 
 Most importantly, i am a proud mother of two active and joyful boys.
