@@ -13,7 +13,7 @@ In the past 7 years, I have functioned in the capacity of a Sales Admin Manager 
 
 I am known for my strong moral and ethical principles, distinct interpersonal relationship skills, sound communication skills, self-motivating and promptness in meeting customer needs. I possess organizational and innovative skills, work excellence, capacity to function without close supervision, persuasive with an insatiable thirst for learning, all of which are key to fostering a long term, defined and structured career progression, as well as adding optimum value to my employer.
 
-My relevenat experience is much needed in the Corporate Communications and Media world, but more importantly is an expertise in technology and the digital field, so i could render acquired skills and experiences effectively, in line with changing global digititalisation , as well as explore inherent talents and creativity,hence the need to be a part of the Tech Epert Academy. 
+My relevenat experience is much needed in the Corporate Communications and Media world, but more importantly is an expertise in technology and the digital field, so i could render acquired skills and experiences effectively, in line with changing global digitalisation , as well as explore inherent talents and creativity,hence the need to be a part of the Tech Epert Academy. 
 
 I have authored two books: ‘My Life in High Heels’ and ‘How to enjoy your job again’- Year 2020
 .
