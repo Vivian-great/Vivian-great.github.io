@@ -21,4 +21,4 @@ A part of a Key-User group that effectively migrated/transmitted to a new Busine
 
 I am an ardent lover of good and artistic food, a skilled music and movie critic who loves to travel and explore other cultures. 
 
-More importantly, i am a proud mother of two active and joyful boys.
+More importantly, i am a proud mother of two active and joyful boys and we currently recide in Lagos, Nigeria.
