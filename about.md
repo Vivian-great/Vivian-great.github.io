@@ -17,7 +17,7 @@ My relevenat experience over the years is no doubt much needed in the Corporate 
 
 I have authored two books: ‘My Life in High Heels’ and ‘How to Enjoy Your Job Again’- Year 2020
 .
-And I am also a part of a Key-User group that effectively migrated/transmitted to a new Business Enterprise Software Application – SAP, at Lafarge Africa Plc. - Year 2018.
+I am also a part of a Key-User group that effectively migrated/transmitted to a new Business Enterprise Software Application – SAP, at Lafarge Africa Plc. - Year 2018.
 
 I am an ardent lover of tasty artistic food, a skilled music and movie critic who loves to travel and explore other cultures. 
 
