@@ -21,4 +21,4 @@ I am also a part of a Key-User group that effectively migrated/transmitted to a 
 
 I am an ardent lover of tasty artistic food, a skilled music and movie critic who loves to travel and explore other cultures. 
 
-More importantly, i am a proud mother of two active and joyful boys, and we currently reside in Lagos, Nigeria.
+More importantly, i am a proud mother of two active boys, and we currently reside in Lagos-Nigeria.
